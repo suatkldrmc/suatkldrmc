@@ -1,4 +1,4 @@
-# Hi, I'm Suat
+# Hi 👋 I'm Suat
 
 **Education**
 
